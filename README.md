@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Khoiwibu
 - 👀 06/11/2007
-- 🌱 I'm love is all
 - 💞️ I'm live in Viet Nam
 - 📫 You love me??
 
